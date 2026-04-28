@@ -94,14 +94,20 @@ Tuhan Maha Adil (Amsal 21:12)
 Keadilan Tuhan membuat Dia harus menghukum manusia yang berdosa. Hukuman dosa adalah maut. Dosa tidak dapat selesai tanpa penghukuman. Dosa harus dihukum, hukumannya adalah kematian dan Neraka. Neraka adalah tempat penghukuman kekal, karena manusia berdosa menentang Allah yang Maha kudus maka hukumannya adalah Neraka. Semua pengadilan di dunia ini menghukum setiap pelaku kejahatan. Tidak ada hukum yang membebaskan orang yang bersalah. Hukum bersifat adil. Mungkin ada hakim yang membengkokkan hukum tapi hukum itu sendiri tidak mengenal pengampunan. Siapa yang melakukan kejahatan akan menerima penghukuman. Neraka adalah tempat penghukuman bagi Iblis dan manusia yang berdosa kepada Tuhan. Semua yang berdosa akan merasakan murka Allah dalam kekelaman Neraka selama-lamanya.
 
 Fakta mengenai neraka ini disembunyikan dan di manipulasi oleh Iblis agar manusia tidak mengetahui hukuman Tuhan terhadap manusia berdosa.
+
 • Iblis membuat ajaran yang menyatakan neraka itu bukanlah sebuah tempat yang nyata, neraka itu tidak ada.
+
 • Di Neraka penyiksaannya seperti penyiksaan yang ada di dunia, dengan sedikit penambahan. Pencuri tangannya dipotong, tangannya tumbuh lagi, dipotong lagi, tumbuh lagi begitu seterusnya.
+
 • Iblis juga “menghembuskan” ide bahwa neraka itu hanya sebuah keadaan saja “Jika engkau menderita itulah neraka-mu.”
+
 • Iblis melalui nabi palsunya juga berkata “Di neraka yang menghukum manusia adalah Iblis”. (Iblisnya tidak dihukum, melainkan dia yang menghukum).
+
 • Neraka itu hanya tempat yang sementara. Neraka tidak kekal. Manusia yang dihukum hanya sementara saja, setelah dihukum akan diangkat ke Sorga.
 Iblis yang pengetahuannya melampaui semua manusia, menipu manusia dengan memunculkan ajaran-ajaran palsu mengenai Neraka. Benarlah firman yang mengatakan, Iblis adalah pendusta dan bapa segala dusta (Yohanes 8:44).
 
 Fakta-fakta tentang Neraka dapat kita lihat dalam terang firman Tuhan:
+
 1. Neraka adalah Lautan Api (Wahyu 20:15)
 Luasnya api neraka melampaui luasnya samudera yang terluas. Kobaran api yang membakar hutan atau yang membakar satu blok perumahan yang pernah dilihat oleh mata manusia tidak dapat dibandingkan dengan luasnya api neraka. Manusia merasakan panasnya api dan terik Matahari yang menyengat tubuh, namun itu semua belum seberapa dibanding dengan panasnya api neraka.
 2. Neraka adalah Api Murka Allah (Yehezkiel 22:31)
@@ -118,7 +124,8 @@ Karena kasihNya kepada manusia yang berdosa, Tuhan Yesus menjadi manusia untuk d
 Mengapa Alkitab berkata “Takut akan Tuhan menjauhi kejahatan”. Karena Tuhan menghukum orang yang berbuat jahat. Celaka sekali jika ada orang yang menganggap hukuman Neraka itu sebagai sebuah lelucon, beberapa orang berkata “Itu hanya untuk nakut-nakutin anak kecil”. Kalau seseorang tidak takut siksaan Api Neraka, orang itu tidak mungkin akan bertobat.
 Waktu kedatangan Tuhan sudah dekat. Karena itu, maukah engkau diselamatkan dari hukuman Neraka? Perhatikanlah, dunia sudah bergelora sedang menuju pada kehancuran. Melihatlah dan bertobatlah! Sebab ada tertulis “Penghakiman yang tak berbelas kasihan akan berlaku pada orang yang tidak berbelas kasihan…” Manusia yang tidak berbelas kasihan yang berdosa menentang Allah akan Tuhan lemparkan ke Lautan Api (Neraka).
 
-Karena itulah Tuhan Yesus berkata dalam Yohanes 14:6 “Akulah jalan dan kebenaran dan hidup. Tidak ada seorang pun yang datang kepada Bapa, kalau tidak melalui Aku.”
+> Karena itulah Tuhan Yesus berkata dalam Yohanes 14:6 “Akulah jalan dan kebenaran dan hidup. Tidak ada seorang pun yang datang kepada Bapa, kalau tidak melalui Aku.”
 
 Keselamatan itu sudah diberikan kepada semua orang, karena itu, maukah engkau selamat?
-“Jika kamu mengaku dengan mulutmu, bahwa Yesus adalah Tuhan, dan percaya dalam hatimu, bahwa Allah telah membangkitkan Dia dari antara orang mati, maka kamu akan diselamatkan” (Roma 10:9).
+
+> “Jika kamu mengaku dengan mulutmu, bahwa Yesus adalah Tuhan, dan percaya dalam hatimu, bahwa Allah telah membangkitkan Dia dari antara orang mati, maka kamu akan diselamatkan” (Roma 10:9).
