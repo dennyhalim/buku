@@ -1032,6 +1032,7 @@ References, Videos, Links
 
 - https://kristenfundamentalis.wordpress.com
 - https://facebook.com/100008547796685/videos
+- https://t.me/addlist/Qt557gGoAsIwZDI1
 - https://alkitabiah.org/alkitabsaja/
 - https://alkitabiah.org/library/?cat=alkitabiah
 - https://alkitabiah.raindrop.page
