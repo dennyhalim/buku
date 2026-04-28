@@ -297,7 +297,7 @@ Ilmu pengetahuan tidak dapat menjelaskan apapun tentang Sorga dan Neraka – itu
 
 Jangan pedulikan perkataan saya tentang apa yang sedang saya katakan. Namun saya ingin Anda melihat ayat-ayat di dalam Alkitab Anda sehingga Anda dapat melihat untuk diri Anda sendiri apa yang Allah katakan tentang Neraka itu!
 
-“Kemudian matilah orang miskin itu, lalu dibawa oleh malaikat-malaikat ke pangkuan Abraham. Orang kaya itu juga mati, lalu dikubur. Dan sementara ia menderita sengsara di alam maut ia memandang ke atas, dan dari jauh dilihatnya Abraham, dan Lazarus duduk di pangkuannya” (Lukas 16:22-23)
+> “Kemudian matilah orang miskin itu, lalu dibawa oleh malaikat-malaikat ke pangkuan Abraham. Orang kaya itu juga mati, lalu dikubur. Dan sementara ia menderita sengsara di alam maut ia memandang ke atas, dan dari jauh dilihatnya Abraham, dan Lazarus duduk di pangkuannya” (Lukas 16:22-23)
 
 > Pada hari pertama orang kaya itu ada di Neraka, ia menemukan bahwa Neraka adalah tempat yang riil. Itu bukan hanya sebuah cerita atau lelucon atau kata umpatan; itu bukan hanya sesuatu yang menjadi dasar para pengkhotbah untuk menakut-nakuti anggota jemaatnya. Orang kaya itu terbangun di tempat yang riil, dan ia menyadari realitas tempat yang disebut Neraka ini.
 
@@ -624,7 +624,7 @@ Ini akan melampaui apa pun yang bisa dibayangkan secara manusiawi!
 
 Alkitab memperingatkan dalam Mazmur 9:17, Anda tidak hanya akan berada di neraka — Anda akan MENJADI NERAKA! Anda benar-benar akan MENJADI NERAKA!
 
-Mazmur 9:17 Orang-orang fasik akan kembali ke dunia orang mati (kjv:menjadi neraka), ya, segala bangsa yang melupakan Allah.
+> Mazmur 9:17 Orang-orang fasik akan kembali ke dunia orang mati (kjv:menjadi neraka), ya, segala bangsa yang melupakan Allah.
 
 - ANDA akan melihat NERAKA. . .
 - ANDA akan mencium bau NERAKA. . .
@@ -658,7 +658,7 @@ Kengerian neraka — bahkan untuk satu detik pun tak tertahankan — adalah SELA
 
 Yesus berkata dalam Matius 25:41: .. Enyahlah dari hadapan-Ku, hai kamu orang-orang terkutuk, enyahlah ke dalam api yang kekal ..
 
-Wahyu 14:11: Maka asap api yang menyiksa mereka itu naik ke atas sampai selama-lamanya, dan siang malam mereka tidak henti-hentinya (kjv: tidak ada istirahat) disiksa, yaitu mereka yang menyembah binatang serta patungnya itu, dan barangsiapa yang telah menerima tanda namanya.
+> Wahyu 14:11: Maka asap api yang menyiksa mereka itu naik ke atas sampai selama-lamanya, dan siang malam mereka tidak henti-hentinya (kjv: tidak ada istirahat) disiksa, yaitu mereka yang menyembah binatang serta patungnya itu, dan barangsiapa yang telah menerima tanda namanya.
 
 Lihat saja bagaimana Alkitab memperingatkan kekekalan dan kekekalan neraka!
 
@@ -687,7 +687,7 @@ Yesus Kristus berkata dalam Markus 9:43-48,
 
 > 9:43 Dan jika tanganmu menyesatkan engkau, penggallah, karena lebih baik engkau masuk ke dalam hidup dengan tangan kudung dari pada dengan utuh kedua tanganmu dibuang ke dalam neraka, ke dalam api yang tak terpadamkan; 9:44 (di tempat itu ulatnya tidak akan mati, dan apinya tidak akan padam.) 9:45 Dan jika kakimu menyesatkan engkau, penggallah, karena lebih baik engkau masuk ke dalam hidup dengan timpang, dari pada dengan utuh kedua kakimu dicampakkan ke dalam neraka; 9:46 (di tempat itu ulatnya tidak akan mati, dan apinya tidak akan padam.) 9:47 Dan jika matamu menyesatkan engkau, cungkillah, karena lebih baik engkau masuk ke dalam Kerajaan Allah dengan bermata satu dari pada dengan bermata dua dicampakkan ke dalam neraka, 9:48 di mana ulat-ulat bangkai tidak mati dan api tidak padam.
 
-Yesus Kristus menganggap neraka begitu serius — Dia bisa mengatakan tanpa ragu sedikit pun — untuk menghilangkan mata Anda, memotong tangan atau kaki Anda, jika itu akan membuat Anda keluar dari neraka!
+Yesus Kristus menganggap neraka begitu serius — Dia bisa mengatakan tanpa ragu sedikit pun — untuk mencungkil mata Anda, memotong tangan atau kaki Anda, jika itu akan membuat Anda keluar dari neraka!
 
 Jika neraka tidak nyata — Yesus Kristus adalah orang yang paling tertipu yang pernah hidup!
 Saya akan menantang siapa pun untuk membaca kata-kata Yesus Kristus dan memberi tahu saya bahwa itu adalah kata-kata orang yang tertipu!
@@ -698,7 +698,7 @@ Yesus Kristus berbicara lebih banyak tentang neraka daripada topik lainnya.
 TUHAN YESUS TIDAK MUNGKIN SALAH !
 ---------------------------------
 
-Ibrani 9:27 mengatakan, Dan sama seperti manusia ditetapkan untuk mati hanya satu kali g saja, dan sesudah itu DIHAKIMI.
+> Ibrani 9:27 mengatakan, Dan sama seperti manusia ditetapkan untuk mati hanya satu kali g saja, dan sesudah itu DIHAKIMI.
 
 ditetapkan bagi manusia untuk mati hanya satu kali. . .
 
@@ -734,7 +734,7 @@ Neraka tidak dibuat untuk manusia. Matius 25:41 mengatakan, neraka adalah api ya
 
 Karena Tuhan adalah ALLAH KASIH, dan Dia sangat MENCINTAIMU, Dia mengutus Putra-Nya, Yesus Kristus, ke dunia ini untuk mati dengan kejam di kayu salib untuk membayar harga yang dituntut oleh ALLAH YANG KUDUS atas dosa-dosamu.
 
-Roma 5:8 mengatakan, “Akan tetapi Allah menunjukkan kasih-Nya kepada kita, oleh karena Kristus telah mati untuk kita, ketika kita masih berdosa.”
+> Roma 5:8 mengatakan, “Akan tetapi Allah menunjukkan kasih-Nya kepada kita, oleh karena Kristus telah mati untuk kita, ketika kita masih berdosa.”
 
 Tuhan tidak mengirim seseorang ke neraka. Anda memilih neraka ketika Anda menolak Yesus Kristus. Ketika Anda menolak anugerah kasih Allah berupa hidup kekal di dalam Yesus Kristus. . .
 
@@ -752,14 +752,15 @@ Dr Rawlings telah menyaksikan ribuan orang pergi menuju keabadian. Kebanyakan or
 
 Yesus Kristus memberikan peringatan serius dalam Matius 7:21-23
 
-7:21 Bukan setiap orang yang berseru kepada-Ku: Tuhan, Tuhan! akan masuk ke dalam Kerajaan Sorga, melainkan dia yang melakukan kehendak Bapa-Ku yang di sorga. 7:22 Pada hari terakhir BANYAK orang akan berseru kepada-Ku: Tuhan, Tuhan, bukankah kami bernubuat demi nama-Mu, dan mengusir setan demi nama-Mu, dan mengadakan banyak mujizat demi nama-Mu juga? 7:23 Pada waktu itulah Aku akan berterus terang kepada mereka dan berkata: Aku tidak pernah mengenal kamu! Enyahlah dari pada-Ku, kamu sekalian pembuat kejahatan!”
+> 7:21 Bukan setiap orang yang berseru kepada-Ku: Tuhan, Tuhan! akan masuk ke dalam Kerajaan Sorga, melainkan dia yang melakukan kehendak Bapa-Ku yang di sorga. 7:22 Pada hari terakhir BANYAK orang akan berseru kepada-Ku: Tuhan, Tuhan, bukankah kami bernubuat demi nama-Mu, dan mengusir setan demi nama-Mu, dan mengadakan banyak mujizat demi nama-Mu juga? 7:23 Pada waktu itulah Aku akan berterus terang kepada mereka dan berkata: Aku tidak pernah mengenal kamu! Enyahlah dari pada-Ku, kamu sekalian pembuat kejahatan!”
 
 Jika itu untuk beberapa hari, beberapa bulan, beberapa tahun atau bahkan satu juta tahun, tetapi untuk disiksa — SELAMANYA! Anda akan putus asa karena pernah memiliki pembebasan! Anda akan memohon kematian itu sendiri untuk datang dan membawa Anda pergi! Anda akan mengutuk hari Anda dilahirkan! Wahyu 14:11 mengatakan, “Asap siksaan mereka naik ke atas untuk selama-lamanya: dan mereka tidak memiliki istirahat siang maupun malam.”
 
 Apa yang mungkin bernilai kekekalan di neraka?
 
 Tidak heran Yesus Kristus berkata dalam Injil Markus
-8:36 Apa gunanya seorang memperoleh seluruh dunia, tetapi ia kehilangan nyawanya. 8:37 Karena apakah yang dapat diberikannya sebagai ganti nyawanya?
+
+> 8:36 Apa gunanya seorang memperoleh seluruh dunia, tetapi ia kehilangan nyawanya. 8:37 Karena apakah yang dapat diberikannya sebagai ganti nyawanya?
 
 Tuhan memiliki sesuatu yang jauh lebih baik daripada yang dapat digambarkan oleh kata-kata bagi mereka yang mengasihi Dia. I Korintus 2:9 mengatakan:
 Tetapi seperti ada tertulis: “Apa yang tidak pernah dilihat oleh mata, dan tidak pernah didengar oleh telinga, dan yang tidak pernah timbul di dalam hati manusia: semua yang disediakan Allah untuk mereka yang mengasihi Dia.
