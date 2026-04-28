@@ -1,7 +1,7 @@
 Tuhan Maha Adil Menciptakan Neraka
 ==================================
 
-**Author:** Ranto Vaber Simamora
+**Author:** Gembala Ranto Vaber Simamora
 
 Keadilan Tuhan membuat Dia harus menghukum manusia yang berdosa. Hukuman 
 dosa adalah maut. Dosa tidak dapat selesai tanpa penghukuman. Dosa harus 
@@ -62,7 +62,7 @@ tidak menghukum Iblis dan semua orang yang berdosa.
 Jalan Ke Sorga
 ==============
 
-**Author:** Ranto Vaber Simamora
+**Author:** Gembala Ranto Vaber Simamora
 
 ### 1. Akui bahwa Anda adalah orang berdosa.
 
@@ -103,7 +103,7 @@ Keselamatan kekal adalah pemberian dari Tuhan. Diberikan dengan cuma-cuma kepada
 Keadilan TIDAK BISA DIBELI dengan AMAL.
 =======================================
 
-**Author:** Ranto Vaber Simamora
+**Author:** Gembala Ranto Vaber Simamora
 
 Bayangkan pemilik dapur MBG korupsi 10M, hakim melepaskan orang tersebut karena dia memberikan santunan kepada 100 orang anak Yatim-Piatu. Adilkah?
 
@@ -142,7 +142,7 @@ Itulah sebabnya Injil adalah kabar baik dari Surga. Manusia tidak DAPAT menyelam
 Maukah Engkau Diselamatkan?
 ===========================
 
-**Author:** Ranto Vaber Simamora
+**Author:** Gembala Ranto Vaber Simamora
 
 Semua manusia pada umumnya mendambakan keselamatan jiwanya setelah ia mati. Karena setiap orang tahu, dia adalah manusia berdosa yang akan dihukum karena dosa-dosanya. Itulah sebabnya manusia berusaha berbuat banyak kebaikan, memeluk agama tertentu, dengan harapan melalui hal-hal itu dia beroleh keselamatan saat ia meninggal. Tapi, apakah benar amalnya dapat menyelamatkannya?
 
@@ -200,7 +200,7 @@ Keselamatan itu sudah diberikan kepada semua orang, karena itu, maukah engkau se
 Saya Mati Kemana?
 =================
 
-**Author:** Ranto Vaber Simamora
+**Author:** Gembala Ranto Vaber Simamora
 
 Salah satu pertanyaan terbesar dalam sejarah umat manusia adalah “Kemana saya setelah mati”? Banyak orang memikirkan pertanyaan ini dan belum menemukan jawaban yang pasti. Dalam ketidakpastian itu manusia mencari jawabannya dalam agama, filsafat, sains, bahkan dalam dirinya sendiri. Berharap mereka menemukan jawabannya. Beberapa orang menyerah dalam ketidaktahuan dan beberapa merasa sudah menemukan jawabannya, sekalipun hanya sekedar ikut-ikutan saja karena apa kata agamanya, dan apa kata mayoritas. Tetapi banyak juga orang yang tidak peduli (karena tidak tahu) dengan pertanyaan tersebut, bagi mereka jawaban atas pertanyaan tersebut tidak sepenting mencari “sesuap nasi” atau kelangsungan bisnisnya. Tetapi apakah benar ada jawaban yang pasti atas pertanyaan tersebut? Kalau ada, dimana? 
 
@@ -482,7 +482,7 @@ Diterjemahkan Dr. Eddy Peter Purwanto
 Tuhan Kok Mati?
 ===============
 
-**Author:** Ranto Vaber Simamora
+**Author:** Gembala Ranto Vaber Simamora
 
 Jika Tuhan mati, maka segala sesuatu akan lenyap, kesunyian tidak sunyi lagi, indahnya pelangi dan makanan yang terlezat tidak akan kita nikmati lagi. Kata “I Love You” yang merupakan salah satu kalimat terindah, tidak akan kita dengar lagi. Tapi apakah benar Tuhan mati? Dalam pengertian apa, Tuhan mati? Tentu saja Tuhan tidak dapat mati dalam pengertian kuasa atau keberadaannya hilang.
 
@@ -1029,7 +1029,10 @@ Karena kami yakin, bahwa manusia dibenarkan karena iman, dan bukan karena ia mel
 References, Videos, Links
 =========================
 
+- https://kristenfundamentalis.wordpress.com
+- https://facebook.com/100008547796685/videos
 - https://alkitabiah.org/alkitabsaja/
-- https://alkitabiah.raindrop.page/
+- https://alkitabiah.org/library/?cat=alkitabiah
+- https://alkitabiah.raindrop.page
 - https://tiny.cc/resolusi2026
 - https://www.youtube.com/watch?v=IR381x24WwM&list=PLWkdf0BXgzp9IFxua1ITVjqr_xHGO-KUw
