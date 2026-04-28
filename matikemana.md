@@ -3,8 +3,6 @@ Tuhan Maha Adil Menciptakan Neraka
 
 **Author:** Ranto Vaber Simamora
 
-https://www.youtube.com/watch?v=IR381x24WwM&list=PLWkdf0BXgzp9IFxua1ITVjqr_xHGO-KUw
-
 Keadilan Tuhan membuat Dia harus menghukum manusia yang berdosa. Hukuman 
 dosa adalah maut. Dosa tidak dapat selesai tanpa penghukuman. Dosa harus 
 dihukum, hukumannya adalah kematian dan Neraka. Neraka adalah tempat 
@@ -1027,3 +1025,11 @@ Karena kami yakin, bahwa manusia dibenarkan karena iman, dan bukan karena ia mel
 
 > Ibrani 10:38 (TB) Tetapi orang-Ku yang benar akan hidup oleh iman, dan apabila ia mengundurkan diri, maka Aku tidak berkenan kepadanya.”
 
+
+References, Videos, Links
+=========================
+
+- https://alkitabiah.org/alkitabsaja/
+- https://alkitabiah.raindrop.page/
+- https://tiny.cc/resolusi2026
+- https://www.youtube.com/watch?v=IR381x24WwM&list=PLWkdf0BXgzp9IFxua1ITVjqr_xHGO-KUw
