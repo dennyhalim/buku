@@ -1036,3 +1036,7 @@ References, Videos, Links
 - https://alkitabiah.raindrop.page
 - https://tiny.cc/resolusi2026
 - https://www.youtube.com/watch?v=IR381x24WwM&list=PLWkdf0BXgzp9IFxua1ITVjqr_xHGO-KUw
+
+Permintaan doa, pembelajaran Alkitab, seminar, dll.:
+
+- https://wa.me/6281220411850
