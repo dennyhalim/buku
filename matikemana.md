@@ -84,15 +84,11 @@ Keadilan Tuhan membuat Dia harus menghukum manusia yang berdosa. Hukuman dosa ad
 
 Fakta mengenai neraka ini disembunyikan dan di manipulasi oleh Iblis agar manusia tidak mengetahui hukuman Tuhan terhadap manusia berdosa.
 
-• Iblis membuat ajaran yang menyatakan neraka itu bukanlah sebuah tempat yang nyata, neraka itu tidak ada.
-
-• Di Neraka penyiksaannya seperti penyiksaan yang ada di dunia, dengan sedikit penambahan. Pencuri tangannya dipotong, tangannya tumbuh lagi, dipotong lagi, tumbuh lagi begitu seterusnya.
-
-• Iblis juga “menghembuskan” ide bahwa neraka itu hanya sebuah keadaan saja “Jika engkau menderita itulah neraka-mu.”
-
-• Iblis melalui nabi palsunya juga berkata “Di neraka yang menghukum manusia adalah Iblis”. (Iblisnya tidak dihukum, melainkan dia yang menghukum).
-
-• Neraka itu hanya tempat yang sementara. Neraka tidak kekal. Manusia yang dihukum hanya sementara saja, setelah dihukum akan diangkat ke Sorga.
+- Iblis membuat ajaran yang menyatakan neraka itu bukanlah sebuah tempat yang nyata, neraka itu tidak ada.
+- Di Neraka penyiksaannya seperti penyiksaan yang ada di dunia, dengan sedikit penambahan. Pencuri tangannya dipotong, tangannya tumbuh lagi, dipotong lagi, tumbuh lagi begitu seterusnya.
+- Iblis juga “menghembuskan” ide bahwa neraka itu hanya sebuah keadaan saja “Jika engkau menderita itulah neraka-mu.”
+- Iblis melalui nabi palsunya juga berkata “Di neraka yang menghukum manusia adalah Iblis”. (Iblisnya tidak dihukum, melainkan dia yang menghukum).
+- Neraka itu hanya tempat yang sementara. Neraka tidak kekal. Manusia yang dihukum hanya sementara saja, setelah dihukum akan diangkat ke Sorga.
 Iblis yang pengetahuannya melampaui semua manusia, menipu manusia dengan memunculkan ajaran-ajaran palsu mengenai Neraka. Benarlah firman yang mengatakan, Iblis adalah pendusta dan bapa segala dusta (Yohanes 8:44).
 
 Fakta-fakta tentang Neraka dapat kita lihat dalam terang firman Tuhan:
