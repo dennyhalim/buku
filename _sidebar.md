@@ -1,2 +1,2 @@
-- [Read Me](README)
 - [Mati Kemana](matikemana)
+- [Alkitab Saja](alkitabsaja)
