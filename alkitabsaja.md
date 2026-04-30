@@ -58,7 +58,7 @@ Ini adalah kesesatan yang sangat besar. Kita harus memahami bahwa sebagian besar
 Jika kita membiarkan Alkitab berbicara sendiri, kita akan mengetahui kebenaran dan dapat menghindari ketidakpercayaan di zaman ini.
 
 1. Perjanjian Baru ditulis di bawah ilham Ilahi.
--------------------------------------------------
+------------------------------------------------
 
 Yesus Kristus menerima firman dari Allah Bapa (Yoh. 17:8) dan Ia berjanji bahwa firman itu tidak akan berlalu (Mat. 24:35). Ia juga berjanji bahwa Roh Kudus akan menuntun para rasul ke dalam seluruh kebenaran, mengingatkan mereka akan segala sesuatu, dan menunjukkan kepada mereka hal-hal yang akan datang (Yoh. 14:25-26; 16:12-13). Dengan demikian, para rasul dan nabi yang menulis Perjanjian Baru tidak perlu bergantung pada alat bantu manusia yang penuh dengan kesalahan. Edward F. Hills dengan bijak mengamati: “Perjanjian Baru berisi firman yang diturunkan Kristus dari surga untuk keselamatan umat-Nya dan sekarang masih tertulis dalam Kitab Suci. … Untuk selama-lamanya, ya TUHAN, Firman-Mu tetap di surga (Mazmur 119:89). Meskipun Kitab Suci ditulis dalam suatu periode sejarah tertentu, Kitab Suci bukanlah hasil dari periode tersebut, tetapi merupakan rencana Allah yang kekal. Ketika Allah merancang Kitab Suci di dalam kekekalan, Dia memiliki seluruh sejarah manusia dalam pandangan-Nya. Oleh karena itu, Kitab Suci selalu relevan. Pesannya tidak akan pernah bisa ketinggalan. Rumput menjadi kering dan bunga menjadi layu, tetapi Firman Allah kita tetap untuk selama-lamanya (Yesaya 40:8).”
 
@@ -96,7 +96,7 @@ Bahwa Alkitab adalah Firman Allah yang tidak dapat salah merupakan dasar dari se
 Ketika berbicara tentang teks dan versi Alkitab, kita harus memperhatikan kata-kata dan detailnya karena Alkitab diilhamkan secara verbal dan lengkap. Kita tidak dapat menerima posisi teks modern yang mengatakan bahwa ribuan kata tidak memiliki arti apa-apa. Tujuan kita setiap saat adalah untuk memiliki kata-kata yang diberikan oleh Roh Allah kepada orang-orang kudus di masa lampau.
 
 2. Perjanjian Baru telah selesai dan dimeteraikan.
--------------------------------------------------
+--------------------------------------------------
 
 Kitab Suci Perjanjian Baru telah selesai ditulis pada zaman para Rasul. Paulus dan Yudas menggambarkan wahyu Allah untuk zaman ini sebagai “iman” (1Tim. 4:1; Yud. 3). Hal ini dapat disebut sebagai “iman Perjanjian Baru”. Ini adalah tubuh kebenaran yang lengkap yang terdiri dari Injil, Kisah Para Rasul, dan Surat-surat.
 
@@ -119,7 +119,7 @@ Doktrin dan praktik Katolik Roma tidak hanya tidak ditemukan dalam Alkitab, teta
 Kepausan bertentangan dengan 1 Petrus 5:1-4, di antara banyak ayat-ayat lainnya. Mariolatri dan para Orang Suci bertentangan dengan 1 Timotius 2:5. Misa bertentangan dengan 1 Korintus 11:23-26. Api Penyucian bertentangan dengan 2 Kor. 5:1-8 dan Flp. 1:23. Imamat Katolik bertentangan dengan Perjanjian Baru karena hanya Kristus saja yang merupakan imam menurut urutan Melkisedek (Ibrani 7:21-27) dan Kristus tidak menetapkan imamat bagi gereja-gereja Perjanjian Baru selain imamat bagi semua orang percaya (1 Petrus 2:5, 9). Tidak ada satu pun contoh dalam Perjanjian Baru tentang seorang imam yang ditahbiskan dan melakukan jenis pelayanan seperti yang kita lihat dalam Gereja Katolik Roma. Perjanjian Baru memberikan kualifikasi untuk penatua dan diaken, tetapi tidak ada kualifikasi untuk imam (1 Timotius 3).
 
 3. Perjanjian Baru telah diterima.
--------------------------------------------------
+----------------------------------
 
 Kita melihat hal ini dalam Yohanes 16:13; 17:8; Kis. 2:41; 8:14; 11:1; 17:11; 1 Tes. 1:6; 2:13. Meskipun catatan sejarah ini tidak ada di luar halaman-halaman Alkitab, kita tahu bahwa penerimaan dan kanonisasi kitab-kitab Perjanjian Baru bukanlah hal yang sembarangan seperti yang digambarkan dalam kebanyakan buku-buku sejarah Alkitab. Roh Kudus yang sama yang memberikan Kitab Suci Perjanjian Baru melalui pengilhaman telah menuntun gereja-gereja dalam menerimanya.
 
