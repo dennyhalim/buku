@@ -267,6 +267,7 @@ Keselamatan itu adalah pemberian dari Tuhan. Saat kita menyadari betapa pendekny
 
 
 
+
 Hari Pertama Orang Berdosa di Neraka
 ====================================
 
@@ -496,6 +497,7 @@ Sama seperti Adam tidak akan mengalami kematian jika ia tidak jatuh ke dalam dos
 Tetapi kematian Tuhan Yesus bukan karena Dia melakukan dosa atau karena dampak dari dosa Adam, kematian Tuhan Yesus karena dosa seisi dunia ditimpakan ke atas diri-Nya di atas kayu Salib. Dosa semua manusia mulai dari Adam sampai manusia terakhir yang akan lahir, ditimpakan ke atas Tuhan Yesus.
 
 > Ibrani 9:28a “Demikian pula Kristus hanya satu kali saja mengorbankan diri-Nya untuk menanggung dosa banyak orang”.
+> 
 > Roma 6:10 “Sebab kematian-Nya adalah kematian terhadap dosa, satu kali dan untuk selama-lamanya”.
 
 Tentu saja, Tuhan Yesus mati karena Dia juga punya tubuh manusia. Jika Tuhan tidak memiliki tubuh manusia maka tidak ada yang namanya kematian. Saat Tuhan Yesus mati, tubuhnya di kuburkan dan Roh-Nya kembali ke Firdaus. Firdaus adalah taman Allah atau yg disebut juga Sorga.
@@ -534,7 +536,7 @@ Karena Tuhan memberikan nyawa-Nya sendiri.
 
 Tuhan dapat melakukan segala sesuatu yang tidak bertentangan dengan sifat-sifat-Nya. Dia dapat menciptakan alam semesta dari bahan yang tidak ada. Dia dapat menjadi manusia. Tentu Dia juga dapat mengalami kematian. Kematian di sini dalam hubungannya dengan keadaan-Nya sebagai manusia. Tuhan tidak mati dalam pengertian tidak ada lagi (keberadaannya tidak hilang lenyap) karena setelah mati pun manusia tetap ADA. Jika manusia tetap ada setelah mati demikian juga halnya dengan Yesus Kristus, Dia tetap ADA. Banyak orang berpikir ANEH tentang kematian Tuhan Yesus. Mereka tidak setuju, Tuhan tidak dapat mati. Tentu saja, Tuhan tidak dapat mati JIKA Dia tidak menjadi manusia. Tetapi sewaktu jadi manusia Tuhan bisa mati. Justru sebaliknya yang salah, jika Tuhan Yesus tidak dapat mati berarti Dia bukan Tuhan. Karena HANYA Tuhan yang dapat memberikan nyawa-Nya serta mengambilnya kembali. Tidak ada manusia yang memiliki nyawanya sendiri, semua nyawa manusia adalah pemberian Tuhan. Dan tidak ada manusia yang mampu mengambil nyawanya kembali.
 
-Yohanes 10:15 “Aku memberikan nyawa-Ku bagi domba-domba-Ku” (17-18) “Bapa mengasihi Aku, oleh karena Aku memberikan nyawa-Ku untuk menerimanya kembali. Tidak seorang pun mengambilnya dari pada-Ku, melainkan Aku memberikannya menurut kehendak-Ku sendiri. Aku berkuasa memberikannya dan berkuasa mengambilnya kembali.
+> Yohanes 10:15 “Aku memberikan nyawa-Ku bagi domba-domba-Ku” (17-18) “Bapa mengasihi Aku, oleh karena Aku memberikan nyawa-Ku untuk menerimanya kembali. Tidak seorang pun mengambilnya dari pada-Ku, melainkan Aku memberikannya menurut kehendak-Ku sendiri. Aku berkuasa memberikannya dan berkuasa mengambilnya kembali.
 
 Tuhan memberikan nyawanya bagi domba-dombaNya. Domba-domba adalah gambaran dari orang-orang percaya. Orang-orang yang percaya pada pengorbanan Kristus di kayu Salib. Di kayu Salib, Tuhan Yesus tergantung dan terkutuk. Dia terkutuk karena kutuk dosa semua manusia “ditimpakan” ke atas-Nya.
 
