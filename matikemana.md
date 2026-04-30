@@ -495,13 +495,16 @@ Sama seperti Adam tidak akan mengalami kematian jika ia tidak jatuh ke dalam dos
 
 Tetapi kematian Tuhan Yesus bukan karena Dia melakukan dosa atau karena dampak dari dosa Adam, kematian Tuhan Yesus karena dosa seisi dunia ditimpakan ke atas diri-Nya di atas kayu Salib. Dosa semua manusia mulai dari Adam sampai manusia terakhir yang akan lahir, ditimpakan ke atas Tuhan Yesus.
 
-> Ibrani 9:28a “Demikian pula Kristus hanya satu kali saja mengorbankan diri-Nya untuk menanggung dosa banyak orang”. Roma 6:10 “Sebab kematian-Nya adalah kematian terhadap dosa, satu kali dan untuk selama-lamanya”.
+> Ibrani 9:28a “Demikian pula Kristus hanya satu kali saja mengorbankan diri-Nya untuk menanggung dosa banyak orang”.
+> Roma 6:10 “Sebab kematian-Nya adalah kematian terhadap dosa, satu kali dan untuk selama-lamanya”.
 
 Tentu saja, Tuhan Yesus mati karena Dia juga punya tubuh manusia. Jika Tuhan tidak memiliki tubuh manusia maka tidak ada yang namanya kematian. Saat Tuhan Yesus mati, tubuhnya di kuburkan dan Roh-Nya kembali ke Firdaus. Firdaus adalah taman Allah atau yg disebut juga Sorga.
 
 Kematian Tuhan Yesus sama seperti kematian manusia pada umumnya. Mati tidak berarti hilang lenyap dan tidak ada lagi. Kematian adalah terpisahnya roh dari raga. Kematian hanya merupakan pintu masuk ke kehidupan selanjutnya. Tubuh dan Roh Tuhan Yesus hanya terpisah selama tiga hari. Karena tiga hari kemudian Ia bangkit dari kematian.
 
-Saat Tuhan dalam tubuh manusia, Ia mengalami lelah, derita, Ia juga meneteskan air mata dan dihianati oleh murid-Nya. Tetapi Tuhan Yesus tidak pernah sakit karena penyakit hanya bagi tubuh yang berdosa. Karena Tuhan Yesus tidak berdosa maka Ia tidak dapat sakit. Itulah sebabnya mengapa tubuh Tuhan Yesus dapat menanggung dosa manusia. Karena tubuhnya tidak berdosa dan karena Dia adalah Tuhan yang menjadi manusia. “Ia tidak berbuat dosa, dan tipu tidak ada dalam mulut-Nya” (I Petrus 2:2).
+Saat Tuhan dalam tubuh manusia, Ia mengalami lelah, derita, Ia juga meneteskan air mata dan dihianati oleh murid-Nya. Tetapi Tuhan Yesus tidak pernah sakit karena penyakit hanya bagi tubuh yang berdosa. Karena Tuhan Yesus tidak berdosa maka Ia tidak dapat sakit. Itulah sebabnya mengapa tubuh Tuhan Yesus dapat menanggung dosa manusia. Karena tubuhnya tidak berdosa dan karena Dia adalah Tuhan yang menjadi manusia. 
+
+> “Ia tidak berbuat dosa, dan tipu tidak ada dalam mulut-Nya” (I Petrus 2:2).
 
 Apakah dosa dapat ditanggung oleh orang lain yang tidak berdosa? Tidak bisa! Karena tidak ada yang namanya manusia yang tidak berdosa, selain Tuhan Yesus. Sebab itu hanya Tuhan Yesus yang dapat menanggung dosa manusia. Ajaran penanggungan dosa, Tuhan ajarkan dalam Alkitab, dan ajaran ini sebenarnya sudah dipraktikkan oleh manusia. Seperti contoh banyak orang yang menjadi penanggung utang orang lain (keluarga atau teman bisnisnya). Jadi, hal mengenai tanggung menanggung “sesuatu” adalah hal yang wajar dan di lakukan oleh manusia pada umumnya. Tetapi mengapa dalam hal dosa, manusia tidak dapat menanggung dosa sesamanya atau dosa orang tuanya atau dosa anak-anaknya? Karena mereka juga orang berdosa. Syarat dapat menanggung dosa manusia adalah harus manusia yang tidak berdosa. Jadi, kebenaran pertama, mengapa “Tuhan kok mati?” adalah karena Tuhan Yesus menanggung dosa seisi dunia. Kebenaran kedua adalah:
 
