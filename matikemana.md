@@ -274,7 +274,7 @@ Hari Pertama Orang Berdosa di Neraka
 
 **Author:** Dr. Denis Leatherman
 
-“Dan jika tanganmu menyesatkan engkau, penggallah, karena lebih baik engkau masuk ke dalam hidup dengan tangan kudung dari pada dengan utuh kedua tanganmu dibuang ke dalam neraka, ke dalam api yang tak terpadamkan” (Markus 9:43)
+> “Dan jika tanganmu menyesatkan engkau, penggallah, karena lebih baik engkau masuk ke dalam hidup dengan tangan kudung dari pada dengan utuh kedua tanganmu dibuang ke dalam neraka, ke dalam api yang tak terpadamkan” (Markus 9:43)
 
 Alkitab dengan sangat jelas mengatakan bahwa tepat pada saat seseorang meninggal dunia, pada saat itu juga ia akan masuk ke Sorga atau Neraka. Ketika seseorang menghembuskan nafasnya yang terakhir, tidak akan ditunda lagi, ia akan pergi ke salah satu dari kedua tempat itu; tidak ada tempat di tengah-tengah di antara kedua tempat itu.
 
@@ -495,7 +495,7 @@ Sama seperti Adam tidak akan mengalami kematian jika ia tidak jatuh ke dalam dos
 
 Tetapi kematian Tuhan Yesus bukan karena Dia melakukan dosa atau karena dampak dari dosa Adam, kematian Tuhan Yesus karena dosa seisi dunia ditimpakan ke atas diri-Nya di atas kayu Salib. Dosa semua manusia mulai dari Adam sampai manusia terakhir yang akan lahir, ditimpakan ke atas Tuhan Yesus.
 
-Ibrani 9:28a “Demikian pula Kristus hanya satu kali saja mengorbankan diri-Nya untuk menanggung dosa banyak orang”. Roma 6:10 “Sebab kematian-Nya adalah kematian terhadap dosa, satu kali dan untuk selama-lamanya”.
+> Ibrani 9:28a “Demikian pula Kristus hanya satu kali saja mengorbankan diri-Nya untuk menanggung dosa banyak orang”. Roma 6:10 “Sebab kematian-Nya adalah kematian terhadap dosa, satu kali dan untuk selama-lamanya”.
 
 Tentu saja, Tuhan Yesus mati karena Dia juga punya tubuh manusia. Jika Tuhan tidak memiliki tubuh manusia maka tidak ada yang namanya kematian. Saat Tuhan Yesus mati, tubuhnya di kuburkan dan Roh-Nya kembali ke Firdaus. Firdaus adalah taman Allah atau yg disebut juga Sorga.
 
