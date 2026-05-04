@@ -121,11 +121,39 @@ Kita tidak diberitahu hal ini secara persis di dalam Alkitab, karena kita tidak 
 
 Gereja Katolik Roma mengklaim bahwa mereka memberikan Alkitab kepada kita, tetapi kita tahu bahwa hal ini tidak benar, bukan hanya karena Alkitab telah selesai ditulis pada zaman para rasul jauh sebelum ada Gereja Katolik Roma, tetapi juga karena dua alasan yang tidak dapat disangkal:
 
-Doktrin dan praktik Katolik Roma tidak ditemukan di dalam Alkitab. Gereja-gereja yang digambarkan dalam Perjanjian Baru tidak sama dengan Gereja Katolik. “Gereja” tersebut dibentuk selama berabad-abad setelah kematian para rasul, ketika para guru palsu mengotori gereja Perjanjian Baru dan menambahkan tradisi-tradisi buatan mereka. Dalam Perjanjian Baru kita tidak menemukan kepausan, tidak ada imamat menurut gaya Roma, tidak ada sakramen-sakramen yang ditambahkan pada iman untuk keselamatan, tidak ada uskup agung atau kardinal, tidak ada pembaptisan ulang, tidak ada misa, tidak ada pembaptisan bayi, tidak ada pengurapan terakhir, tidak ada Maria sebagai ratu surga, tidak ada Maria sebagai Bunda Allah, tidak ada Maria tak bernoda, tidak ada Maria diangkat ke surga, tidak ada doa-doa kepada orang-orang kudus, tidak ada perbendaharaan rahmat, tidak ada api penyucian, tidak ada relikui suci atau jubah suci atau air suci, tidak ada salib atau lilin atau katedral atau biarawan, tidak ada pendeta yang “membujang”, tidak ada hari-hari puasa yang dipaksakan, tidak ada larangan pernikahan atau larangan makan daging, tidak ada tentang gereja Roma yang lebih unggul daripada gereja-gereja lain.
+Doktrin dan praktik Katolik Roma TIDAK ditemukan di dalam Alkitab. Gereja-gereja yang digambarkan dalam Perjanjian Baru TIDAK SAMA dengan Gereja Katolik. “Gereja” tersebut dibentuk selama berabad-abad setelah kematian para rasul, ketika para guru palsu mengotori gereja Perjanjian Baru dan menambahkan tradisi-tradisi buatan mereka.
+
+* Dalam Perjanjian Baru kita tidak menemukan kepausan,
+* tidak ada imamat menurut gaya Roma,
+* tidak ada sakramen-sakramen yang ditambahkan pada iman untuk keselamatan,
+* tidak ada uskup agung atau kardinal,
+* tidak ada pembaptisan melahirbarukan,
+* tidak ada misa,
+* tidak ada pembaptisan bayi,
+* tidak ada pengurapan terakhir,
+* tidak ada Maria sebagai ratu surga,
+* tidak ada Maria sebagai Bunda Allah,
+* tidak ada Maria tak bernoda,
+* tidak ada Maria diangkat ke surga,
+* tidak ada doa-doa kepada orang-orang kudus,
+* tidak ada perbendaharaan rahmat,
+* tidak ada api penyucian,
+* tidak ada relikui suci atau jubah suci atau air suci,
+* tidak ada salib atau lilin atau katedral atau biarawan,
+* tidak ada pendeta yang “membujang”,
+* tidak ada hari-hari puasa yang dipaksakan,
+* tidak ada larangan pernikahan atau larangan makan daging,
+* tidak ada tentang gereja Roma yang lebih unggul daripada gereja-gereja lain.
 
 Doktrin dan praktik Katolik Roma tidak hanya tidak ditemukan dalam Alkitab, tetapi juga bertentangan dengan Alkitab, sehingga tidak dapat menjadi sumbernya. Dogma-dogma Katolik seperti kepausan, Mariolatri, Orang Kudus, Imamat, Misa, dan Api Penyucian tidak hanya tidak ditemukan dalam Perjanjian Baru, tetapi juga bertentangan dengan pengajaran dan praktik Perjanjian Baru. Pertimbangkan beberapa contoh:
 
-Kepausan bertentangan dengan 1 Petrus 5:1-4, di antara banyak ayat-ayat lainnya. Mariolatri dan para Orang Suci bertentangan dengan 1 Timotius 2:5. Misa bertentangan dengan 1 Korintus 11:23-26. Api Penyucian bertentangan dengan 2 Kor. 5:1-8 dan Flp. 1:23. Imamat Katolik bertentangan dengan Perjanjian Baru karena hanya Kristus saja yang merupakan imam menurut urutan Melkisedek (Ibrani 7:21-27) dan Kristus tidak menetapkan imamat bagi gereja-gereja Perjanjian Baru selain imamat bagi semua orang percaya (1 Petrus 2:5, 9). Tidak ada satu pun contoh dalam Perjanjian Baru tentang seorang imam yang ditahbiskan dan melakukan jenis pelayanan seperti yang kita lihat dalam Gereja Katolik Roma. Perjanjian Baru memberikan kualifikasi untuk penatua dan diaken, tetapi tidak ada kualifikasi untuk imam (1 Timotius 3).
+* Kepausan bertentangan dengan 1 Petrus 5:1-4, di antara banyak ayat-ayat lainnya.
+* Mariolatri dan para Orang Suci bertentangan dengan 1 Timotius 2:5.
+* Misa bertentangan dengan 1 Korintus 11:23-26.
+* Api Penyucian bertentangan dengan 2 Kor. 5:1-8 dan Flp. 1:23.
+* Imamat Katolik bertentangan dengan Perjanjian Baru karena hanya Kristus saja yang merupakan imam menurut urutan Melkisedek (Ibrani 7:21-27) dan Kristus tidak menetapkan imamat bagi gereja-gereja Perjanjian Baru selain imamat bagi semua orang percaya (1 Petrus 2:5, 9).
+* Tidak ada satu pun contoh dalam Perjanjian Baru tentang seorang imam yang ditahbiskan dan melakukan jenis pelayanan seperti yang kita lihat dalam Gereja Katolik Roma.
+* Perjanjian Baru memberikan kualifikasi untuk penatua dan diaken, tetapi tidak ada kualifikasi untuk imam (1 Timotius 3).
 
 
 ## 3. Perjanjian Baru telah diterima.
