@@ -68,7 +68,6 @@ Ini adalah kesesatan yang sangat besar. Kita harus memahami bahwa sebagian besar
 Jika kita membiarkan Alkitab berbicara sendiri, kita akan mengetahui kebenaran dan dapat menghindari ketidakpercayaan di zaman ini.
 
 ## 1. Perjanjian Baru ditulis di bawah ilham Ilahi.
-------------------------------------------------
 
 Yesus Kristus menerima firman dari Allah Bapa (Yoh. 17:8) dan Ia berjanji bahwa firman itu tidak akan berlalu (Mat. 24:35). Ia juga berjanji bahwa Roh Kudus akan menuntun para rasul ke dalam seluruh kebenaran, mengingatkan mereka akan segala sesuatu, dan menunjukkan kepada mereka hal-hal yang akan datang (Yoh. 14:25-26; 16:12-13). Dengan demikian, para rasul dan nabi yang menulis Perjanjian Baru tidak perlu bergantung pada alat bantu manusia yang penuh dengan kesalahan. Edward F. Hills dengan bijak mengamati: “Perjanjian Baru berisi firman yang diturunkan Kristus dari surga untuk keselamatan umat-Nya dan sekarang masih tertulis dalam Kitab Suci. … Untuk selama-lamanya, ya TUHAN, Firman-Mu tetap di surga (Mazmur 119:89). Meskipun Kitab Suci ditulis dalam suatu periode sejarah tertentu, Kitab Suci bukanlah hasil dari periode tersebut, tetapi merupakan rencana Allah yang kekal. Ketika Allah merancang Kitab Suci di dalam kekekalan, Dia memiliki seluruh sejarah manusia dalam pandangan-Nya. Oleh karena itu, Kitab Suci selalu relevan. Pesannya tidak akan pernah bisa ketinggalan. Rumput menjadi kering dan bunga menjadi layu, tetapi Firman Allah kita tetap untuk selama-lamanya (Yesaya 40:8).”
 
@@ -107,7 +106,6 @@ Ketika berbicara tentang teks dan versi Alkitab, kita harus memperhatikan kata-k
 
 
 ## 2. Perjanjian Baru telah selesai dan dimeteraikan.
---------------------------------------------------
 
 Kitab Suci Perjanjian Baru telah selesai ditulis pada zaman para Rasul. Paulus dan Yudas menggambarkan wahyu Allah untuk zaman ini sebagai “iman” (1Tim. 4:1; Yud. 3). Hal ini dapat disebut sebagai “iman Perjanjian Baru”. Ini adalah tubuh kebenaran yang lengkap yang terdiri dari Injil, Kisah Para Rasul, dan Surat-surat.
 
@@ -131,7 +129,6 @@ Kepausan bertentangan dengan 1 Petrus 5:1-4, di antara banyak ayat-ayat lainnya.
 
 
 ## 3. Perjanjian Baru telah diterima.
-----------------------------------
 
 Kita melihat hal ini dalam Yohanes 16:13; 17:8; Kis. 2:41; 8:14; 11:1; 17:11; 1 Tes. 1:6; 2:13. Meskipun catatan sejarah ini tidak ada di luar halaman-halaman Alkitab, kita tahu bahwa penerimaan dan kanonisasi kitab-kitab Perjanjian Baru bukanlah hal yang sembarangan seperti yang digambarkan dalam kebanyakan buku-buku sejarah Alkitab. Roh Kudus yang sama yang memberikan Kitab Suci Perjanjian Baru melalui pengilhaman telah menuntun gereja-gereja dalam menerimanya.
 
@@ -175,7 +172,6 @@ Kita dapat berharap untuk menemukan teks paling murni dari Kitab Suci Perjanjian
 
 
 ## 4. Perjanjian Baru dipelihara dengan hati-hati dan diteruskan kepada generasi-generasi berikutnya (1 Tim. 6:13-14; Mat. 28:19-20; 2 Tim. 2:2).
--------------------------------------------------
 
 Orang-orang percaya di gereja mula-mula diajar untuk memelihara Kitab Suci “dengan tidak bercacat” (1 Tim. 6:13) dan meneruskan apa yang telah diajarkan oleh para rasul kepada orang-orang yang setia, yang dapat mengajar orang lain (2 Tim. 2:2).
 
