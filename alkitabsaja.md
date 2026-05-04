@@ -37,7 +37,7 @@ Orang yang tidak percaya sering menunjuk kepada mereka yang mengatakan bahwa mer
 ANDA TIDAK SENDIRIAN jika Anda masih meragukan Alkitab. Alkitab, sama seperti dunia di sekitar kita, memang mengandung unsur-unsur misteri. Namun demikian, jika Alkitab benar-benar seperti yang dikatakannya, Anda tidak perlu memilah-milah sendiri bukti-bukti yang ada. Yesus justru menjanjikan pertolongan ilahi bagi mereka yang ingin mengenal kebenaran tentang diri-Nya dan ajaran-Nya. Sebagai tokoh utama dari Perjanjian Baru, Yesus berkata, “Barangsiapa mau melakukan kehendak Allah, ia akan tahu entah ajaran-Ku ini berasal dari Allah, entah aku berkata-kata dari diri-Ku sendiri.” (.Yoh 7:17)
 
 Satu kunci penting untuk mengerti Alkitab adalah bahwa Alkitab tidak pernah bermaksud untuk menarik kita kepada dirinya sendiri. Setiap prinsip di dalam Alkitab memperlihatkan kebutuhan kita akan pengampunan yang disediakan Kristus bagi kita. Alkitab memperlihatkan mengapa kita perlu membiarkan Roh Kudus hidup melalui kita. Untuk hubungan yang seperti inilah Alkitab diberikan kepada kita.
-RBC Ministries Asia, Ltd.(cd SABDA 3.0)
+Saduran dari RBC Ministries Asia, Ltd.(cd SABDA 3.0)
 
 
 
